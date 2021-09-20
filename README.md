@@ -28,8 +28,6 @@
 
 -📍 Tested until Android version 11.
 
--📍 In this tutorial, you will learn how to hack WhatsApp social network
-
 # Download :
 ----------------------
 - 📌 ID Telegram [@hack4lx](https://t.me/hack4lx)
