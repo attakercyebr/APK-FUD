@@ -55,7 +55,7 @@
 # See how it works v1.0.0
 ----------------------
 - 🔞 V1.0..0  
--  https://m4nifest0.group/product/APK-FUD
+-  https://m4nifest0.group/product/apk-fud/D
 # How to ger:
 ----------------------
 - 📌 Visit our channel or our site to download .
